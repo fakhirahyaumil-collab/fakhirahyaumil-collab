@@ -1,4 +1,4 @@
 ## Biodata Diri
-- Wulan
-- Baik
--  Tidak sombong
+- Nama : Fakhirah yaumil\
+- ;;cpkds;\
+- skf
